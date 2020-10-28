@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi I am AJIN CYRIAC
+
+FOR SUCCESS, ATTITUDE IS EQUALLY AS IMPORTANT AS ABILITY 
 
 <!--
 **ajin9446/ajin9446** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
