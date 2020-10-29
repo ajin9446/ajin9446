@@ -1,6 +1,6 @@
 ### Hi I am AJIN CYRIAC
 
-FOR SUCCESS, ATTITUDE IS EQUALLY AS IMPORTANT AS ABILITY 
+POWERFUL PEOPLE COMES FROM POWERFUL PLACES
 
 <h1 align="center">Hi 👋, I'm AJIN CYRIAC</h1>
 <h3 align="center">A passionate frontend developer from India</h3>
