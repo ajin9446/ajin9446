@@ -9,7 +9,7 @@ THE POWER OF SIMPLICITY
 
 - 🌱 I’m currently learning **CYBER SECURITY**
 
-- 📫 How to reach me **ajincyriac852@gmail.com**
+- 📫 How to reach me **ajincyriac852@gmail.com** **ajincyriac9446@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
