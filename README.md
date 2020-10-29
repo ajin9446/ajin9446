@@ -2,6 +2,8 @@
 
 POWERFUL PEOPLE COMES FROM POWERFUL PLACES
 
+THE POWER OF SIMPLICITY
+
 <h1 align="center">Hi 👋, I'm AJIN CYRIAC</h1>
 <h3 align="center">A passionate frontend developer from India</h3>
 
